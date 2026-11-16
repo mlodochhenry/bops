@@ -1,0 +1,1 @@
+Claude, du sollst tatsächlich jetzt hier rein, alle Änderungen und dein Gedächtnis einfach hochladen und dann einfach da reinschauen, um zu gucken, wie weit du bist, was du jetzt bearbeiten musst und so weiter 
